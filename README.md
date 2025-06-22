@@ -8,7 +8,7 @@
 ## 📫 Contact
 
 - 📷 [Instagram](https://instagram.com/mattia.rebo)  
-- 📧 Email: [mattia.rebonato031@gmail.com](mailto:mattia.rebonato31@gmail.com)
+- 📧 Email: [mattia.rebonato31@gmail.com](mailto:mattia.rebonato31@gmail.com)
 
 ---
 
